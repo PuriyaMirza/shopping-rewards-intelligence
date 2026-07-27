@@ -1,0 +1,1 @@
+# shopping-rewards-intelligence
